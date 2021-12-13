@@ -1,0 +1,1 @@
+# seminarcard.github.io
